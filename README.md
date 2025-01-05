@@ -1,3 +1,3 @@
 ## !★.. ◞ 𐑞 BAM!! 🍓
 
-![agh](https://i.postimg.cc/K89yvkGZ/image-2025-01-05-171902016.png)
+![agh](https://i.postimg.cc/NjpS65z5/image-2025-01-05-172806931.png)
