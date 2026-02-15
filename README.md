@@ -1,3 +1,3 @@
 ## .. ◞ 𐑞 I'm living with the jellies!! 
 
-![agh](https://i.postimg.cc/JzXMsZmM/image-2026-02-15-190745590.png)
+<a href='https://postimg.cc/XG6hfpSL' target='_blank'><img src='https://i.postimg.cc/XG6hfpSL/image-2026-02-15-191100616-removebg-preview.png' border='0' alt='image-2026-02-15-191100616-removebg-preview'></a>
